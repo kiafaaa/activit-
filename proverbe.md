@@ -1,0 +1,1 @@
+Ce n'est qu'avec les yeux des autres qu'on peut bien voir ses défauts.
